@@ -1,5 +1,4 @@
-## Hi there 👋
-
+Hello there! I'm Craig. I enjoy any nicknames.
 <!--
 **ThatCraigKid/ThatCraigKid** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
