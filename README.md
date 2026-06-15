@@ -2,6 +2,8 @@
 
 My brother (guest), me (Matt), and his girlfriend (Daisy), btw !! ^^
 
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+
 Hello there! I'm Craig. I enjoy any nicknames and dont mind being called a character I kin. I typically use He/Him prns but She/Her prns are okay. I use name prns (Like Craig/Craigself) and this can also be with characters I kin, for example, Matt from TLG. All the characters I kin are fictionlinks, meaning I choose to kin them. Since I am a minor, I am NOT comfortable with people over the age of 18 interacting with me. 
 <!--
 **ThatCraigKid/ThatCraigKid** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
