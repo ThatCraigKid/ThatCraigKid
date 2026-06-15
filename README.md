@@ -20,7 +20,7 @@ In addition, I absolutely have to talk about my online sister, whom I always cal
 Interest!!
 
 
-I love Tyler, The Creator, Malcolm Todd, The Last Guest, Gordan Korman books, Mob Pyshco 100, The Disatrous Life of Saiki K, Greatest Teacher Onizuka, South Park, Cult of The Lamb, Peanuts, Invader Zim, Sanrio (Hello Kitty and Friends?) BFDI - TPOT, Dandy's World, Scott Pilgrim franchise (anime, movie, and comics are all A-MAZING!) Hoops & YoYo, Smiling Friends, Roblox Hackers, Kevin Spencer, and more probably cuz this is from the top of my head.
+I love Tyler, The Creator, Malcolm Todd, The Last Guest, Gordan Korman books, Mob Pyshco 100, The Disatrous Life of Saiki K, Greatest Teacher Onizuka, South Park, Cult of The Lamb, Peanuts, Invader Zim, Sanrio (Hello Kitty and Friends?) BFDI - TPOT, Dandy's World, Scott Pilgrim franchise (anime, movie, and comics are all A-MAZING!) Hoops & YoYo, Smiling Friends, Roblox Hackers, Kevin Spencer, The Summer Hikaru Died, and more probably cuz this is from the top of my head.
 
 If you too share/enjoy and of my interest, feel free to talk to me about em.
 <!--
