@@ -1,4 +1,4 @@
-<img width="736" height="414" alt="Guest 1337 + Matt + Daisy _3" src="https://github.com/user-attachments/assets/94ce32ce-f20c-4090-93ba-ea8b4dd6d9a1" />
+<img width="350" height="207" alt="Guest 1337 + Matt + Daisy _3" src="https://github.com/user-attachments/assets/94ce32ce-f20c-4090-93ba-ea8b4dd6d9a1" />
 
 
 Hello there! I'm Craig. I enjoy any nicknames.
