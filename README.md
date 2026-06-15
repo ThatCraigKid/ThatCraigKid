@@ -18,7 +18,7 @@ Hey there, I'm Craig. Feel free to use any nicknames or call me by the character
 <summary><b>Important People 2 Me</b></summary>
 
 
-My online brother (Fred) and his girlfriend (Rose.) He kins Guest 1337 and she kins Daisy, and honestly, they are both just such incredibly amazing people to be around. I genuinely enjoy their company so much, and getting to hang out and talk with them always makes my day a lot better. They’re super supportive, awesome to chat with, and I’m just really grateful to have both of them in my life as such great friends.
+My online brother (Fred) and his girlfriend (Rose.) He kins Guest 1337 and they kin Daisy, and honestly, they are both just such incredibly amazing people to be around. I genuinely enjoy their company so much, and getting to hang out and talk with them always makes my day a lot better. They’re super supportive, awesome to chat with, and I’m just really grateful to have both of them in my life as such great friends.
 
 
 My online sister, whom I always call Shishou. She is such an incredibly important person to me, and I honestly don't know what I would do without her around. She has always been there for me, and I want her to know that the feeling is completely mutual. No matter what happens or how tough things get, I will always be right here by her side to support her and have her back through everything. She means the absolute world to me.
