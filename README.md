@@ -4,7 +4,25 @@ My brother (guest), me (Matt), and his girlfriend (Daisy), btw !! ^^
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
-Hello there! I'm Craig. I enjoy any nicknames and dont mind being called a character I kin. I typically use He/Him prns but She/Her prns are okay. I use name prns (Like Craig/Craigself) and this can also be with characters I kin, for example, Matt from TLG. All the characters I kin are fictionlinks, meaning I choose to kin them. Since I am a minor, I am NOT comfortable with people over the age of 18 interacting with me. 
+Basic Info + Shout Outs
+
+
+Hey there, I'm Craig. Feel free to use any nicknames or call me by the characters I kin! For pronouns, I prefer He/Him, but She/Her works too. I also use name/kin pronouns (like Craig/Craigself or Matt/Mattself). Just so you know, all my kins are fictionlinks, so they are chosen. Strictly DNI if you are 18 or older, I am a minor.
+
+
+I also really want to give a huge shoutout to my online brother and his girlfriend because they mean the absolute world to me. He kins Guest 1337 and she kins Daisy, and honestly, they are both just such incredibly amazing people to be around. I genuinely enjoy their company so much, and getting to hang out and talk with them always makes my day a lot better. They’re super supportive, awesome to chat with, and I’m just really grateful to have both of them in my life as such great friends.
+
+
+In addition, I absolutely have to talk about my online sister, whom I always call Shishou. She is such an incredibly important person to me, and I honestly don't know what I would do without her around. She has always been there for me, and I want her to know that the feeling is completely mutual. No matter what happens or how tough things get, I will always be right here by her side to support her and have her back through everything. She means the absolute world to me.
+
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+
+Interest!!
+
+
+I love Tyler, The Creator, Malcolm Todd, The Last Guest, Gordan Korman books, Mob Pyshco 100, The Disatrous Life of Saiki K, Greatest Teacher Onizuka, South Park, Cult of The Lamb, Peanuts, Invader Zim, Sanrio (Hello Kitty and Friends?) BFDI - TPOT, Dandy's World, Scott Pilgrim franchise (anime, movie, and comics are all A-MAZING!) Hoops & YoYo, Smiling Friends, Roblox Hackers, Kevin Spencer, and more probably cuz this is from the top of my head.
+
+If you too share/enjoy and of my interest, feel free to talk to me about em.
 <!--
 **ThatCraigKid/ThatCraigKid** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
