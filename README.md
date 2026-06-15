@@ -27,7 +27,7 @@ My online sister, whom I always call Shishou. She is such an incredibly importan
 Pete and Ojay. These two are awesome friends that I usually draw with on Magma. They are genuienly amazing people and I'm so glad that I'm friends with them. I have no idea what to say about them,, they are just really cool people ok? ok.
 
 
-Fishy / Ccchan. My first friend on ponytown, she's amazing. Fishy, if you're going through something, I'm always here if you want to talk about it, ok? You are a great person and you should remember that!!
+Fishy / Ccchan. My first friend on ponytown, their amazing. Fishy, if you're going through something, I'm always here if you want to talk about it, ok? You are a great person and you should remember that!!
 
 
 </details>
