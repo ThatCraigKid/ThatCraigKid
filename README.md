@@ -10,4 +10,8 @@
 </p>
 
 
+<p align="center">
 
+<img width="176" height="222" alt="1713" src="https://github.com/user-attachments/assets/e22006c0-c098-4d31-a560-306892d6aa37" />
+
+</p>
