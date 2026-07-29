@@ -23,6 +23,5 @@
 
 
 <p align="center">
-  <a href="https://github.com/pt-walk-of-fame">pts walk of fame</a> │
   <a href="https://github.com/pt-hall-of-media">pts hall of media</a>
 </p>
