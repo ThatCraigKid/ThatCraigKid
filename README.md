@@ -21,6 +21,9 @@
 
 </p>
 
+<p align="center">
+craig / strider. highly suspected ADHD, not diagnosed tho. 3teen. i actually tend to hate everyone especially friends of a friend, dont expect me to be nice. 
+</p>
 
 <p align="center">
   <a href="https://github.com/pt-hall-of-media">pts hall of media</a>
