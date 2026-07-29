@@ -9,6 +9,11 @@
   <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Silkscreen&duration=4370&pause=200&color=E00707&center=true&width=580&lines=i+love+ry+platonically!!;dave+strider+is+so+me;+sorry+if+i+seem+dry+sumtimes;+im+lowkey+a+lazy+bum;" alt="Typing SVG"></a>
 </p>
 
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=ThatCraigKid&style=flat&color=E00707&label=losers+who+like+me&base=0&abbreviated=true" alt="GitHubProfileViews" width="200">
+</p>
+
+
 
 <p align="center">
 
