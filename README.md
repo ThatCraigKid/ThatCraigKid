@@ -16,9 +16,13 @@
 </p>
 
 <p align="center">
-craig / strider. highly suspected ADHD, not diagnosed tho. 3teen. i actually tend to hate everyone especially friends of a friend, dont expect me to be nice. 
+craig / strider. pony towns dave strider! lol. highly suspected ADHD, not diagnosed tho. 3teen. i actually tend to hate everyone especially friends of a friend, dont expect me to be nice. 
+
+  <img width="480" height="112" alt="1773" src="https://github.com/user-attachments/assets/77c667d5-e5d4-4d13-870e-c67a01f752fc" />
+
 </p>
 
 <p align="center">
-  <a href="https://github.com/pt-hall-of-media">pts hall of media</a>
+  <a href="https://github.com/pt-hall-of-media">pts hall of media</a> |
+  <a href="https://github.com/pt-walk-of-fame">pts walk of fame</a>
 </p>
