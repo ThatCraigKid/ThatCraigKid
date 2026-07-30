@@ -1,6 +1,6 @@
 
 <p align="center">
-  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Silkscreen&duration=4370&pause=200&color=E00707&center=true&width=580&lines=how+are+you+allowing+them+to+say+that?;you+are+LITERALLY+dating+someone,+ry.;dave+strider+is+so+me;+sorry+if+i+seem+dry+sumtimes;+im+lowkey+a+lazy+bum;" alt="Typing SVG"></a>
+  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Silkscreen&duration=4370&pause=200&color=E00707&center=true&width=580&lines=hi+bro;i+block+and+unfriend+freely;dave+strider+is+so+me;+sorry+if+i+seem+dry+sumtimes;+im+lowkey+a+lazy+bum;" alt="Typing SVG"></a>
 </p>
 
 <p align="center">
