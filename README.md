@@ -21,5 +21,6 @@
 </p>
 
 <p align="center">
-  <a href="https://github.com/pt-walk-of-fame">pts walk of fame</a>
+  <a href="https://github.com/pt-walk-of-fame">pts walk of fame</a> <img width="20" height="20" alt="1916" src="https://github.com/user-attachments/assets/3b8acd4f-abe1-4178-a5fe-ab26114c84c9" />
+
 </p>
