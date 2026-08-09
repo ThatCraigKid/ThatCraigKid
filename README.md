@@ -1,10 +1,10 @@
 
 <p align="center">
-  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Silkscreen&duration=4370&pause=200&color=E00707&center=true&width=580&lines=hi+bro;my+dni+is+very+strict;dave+strider+is+so+me;+sorry+if+i+seem+dry+sumtimes;+im+lowkey+a+lazy+bum;+starry,+Ry,+and+shishou+are+the+best" alt="Typing SVG"></a>
+  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Silkscreen&duration=4370&pause=200&color=FFEB3B&center=true&width=580&lines=hi+bro;+sorry+if+i+seem+dry+sumtimes;+im+lowkey+a+lazy+bum;+starry,+Ry,+and+shishou+are+the+best;and+also+cleo!" alt="Typing SVG"></a>
 </p>
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=ThatCraigKid&style=flat&color=E00707&label=losers+who+like+me&base=0&abbreviated=true" alt="GitHubProfileViews" width="200">
+  <img src="https://komarev.com/ghpvc/?username=ThatCraigKid&style=flat&color=3F51B5&label=losers+who+like+me&base=0&abbreviated=true" alt="GitHubProfileViews" width="200">
 </p>
 
 
