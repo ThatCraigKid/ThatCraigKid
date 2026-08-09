@@ -11,12 +11,12 @@
 
 <p align="center">
 
-<img width="176" height="222" alt="1713" src="https://github.com/user-attachments/assets/e22006c0-c098-4d31-a560-306892d6aa37" />
+<img width="200" height="177" alt="1912" src="https://github.com/user-attachments/assets/cdc5f178-d697-4970-8afa-ce8af22cf9d3" />
 
 </p>
 
 <p align="center">
-craig / strider. pony towns dave strider! lol. highly suspected ADHD, not diagnosed tho. 3teen. i actually tend to hate people easily, dont expect me to be nice. 
+craig / strider. pony towns dave strider! lol. highly suspected ADHD, not diagnosed tho. 3teen. Craig Tucker has been my comf character for around 5 years now.. flexes.
 
 </p>
 
