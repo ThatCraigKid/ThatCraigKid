@@ -16,7 +16,7 @@
 </p>
 
 <p align="center">
-craig / strider. pony towns dave strider! lol. highly suspected ADHD, not diagnosed tho. 3teen. Craig Tucker has been my comf character for around 5 years now.. flexes.
+3teen. Craig Tucker has been my comf character for around 5 years now.. flexes.
 
 </p>
 
