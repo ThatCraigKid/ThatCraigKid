@@ -4,7 +4,7 @@
 </p>
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=ThatCraigKid&style=flat&color=3F51B5&label=losers+who+like+me&base=0&abbreviated=true" alt="GitHubProfileViews" width="200">
+  <img src="https://komarev.com/ghpvc/?username=Kennysheartholder&style=flat&color=3F51B5&label=losers+who+like+me&base=0&abbreviated=true" alt="GitHubProfileViews" width="200">
 </p>
 
 
